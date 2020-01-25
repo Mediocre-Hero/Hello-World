@@ -1,2 +1,2 @@
 # Hello-World
-this is a repository.
+hello weirdo. i am obviously new here. why are you reading this?
